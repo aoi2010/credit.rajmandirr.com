@@ -1,1 +1,1 @@
-# activated.win
+# credits.rajmandirr.com
